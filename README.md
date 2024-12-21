@@ -56,12 +56,12 @@ If you'd like to discuss collaboration opportunities, please contact me at [mona
 
 ## Contact
 For inquiries or to discuss mobile app development needs, please reach out:
-- **Email**: monaego@live.com
-- **LinkedIn**: Mona Hidalgo
-- **Twitter**: @MonaHidalgo1
+- **Email**: installhari@gmai.com
+- **LinkedIn**: Harish
+- **Twitter**: @MHarish
 
 **Biltsoft**  
-**Owner**: Mona Hidalgo
+**Owner**: Harish
 
 - Login logo images 
 - All logo design by Mona Hidalgo. 
